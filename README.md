@@ -1,1 +1,0 @@
-# Harri-edhe-10p
